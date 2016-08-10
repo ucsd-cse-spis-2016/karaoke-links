@@ -14,3 +14,4 @@
 
 * [Summer Nights (from Grease)](https://www.youtube.com/watch?v=tpQM4xLdUig)
 * [For Good (from Wicked)](https://www.youtube.com/watch?v=GvWpMN4XDbc)
+* [Defying Gravity (from Wicked)](https://www.youtube.com/watch?v=un_TGUkABKQ)
